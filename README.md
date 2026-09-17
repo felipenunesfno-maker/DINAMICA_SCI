@@ -1,0 +1,1 @@
+# DINAMICA_SCI
